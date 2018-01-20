@@ -1,0 +1,5 @@
+- shrimp salad
+  - carrots, cucumbers, olive oil, lemon, chili flakes, satueed shrimp
+- chicken sandwiches
+  - ciabatta, tzatziki or hummus, cucumbers, chopped + grilled chicken breast, pepper, cheese optional
+- green beans
